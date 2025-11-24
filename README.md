@@ -1,0 +1,2 @@
+# Gmdy
+ingotnordelta.com projecct
